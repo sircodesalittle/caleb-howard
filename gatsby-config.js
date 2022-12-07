@@ -12,9 +12,9 @@ module.exports = {
     title: `Surrender Life`,
     author: {
       name: `Caleb Howard`,
-      summary: `thoughts, life, and theology - a work-in-progress`,
+      summary: `The greatest lives are those surrendered in love to something worthy of sacrifice.`,
     },
-    description: `A simple blog by Caleb Howard`,
+    description: `A blog by Caleb Howard`,
     siteUrl: `https://surrenderlife.com/`,
   },
   plugins: [
