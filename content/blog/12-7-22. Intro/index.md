@@ -1,5 +1,5 @@
 ---
-title: Surrender Life
+title: Intro to The Surrender Life
 date: "2020-12-07"
 description: "Surrender Life"
 ---
