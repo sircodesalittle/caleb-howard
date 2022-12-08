@@ -1,6 +1,6 @@
 ---
 title: Intro To The Surrender Life
-date: "2020-12-07"
+date: "2022-12-07"
 description: "What are you living for?  Is there anything worth “living” for?"
 ---
 
