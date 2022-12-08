@@ -12,7 +12,7 @@ module.exports = {
     title: `Surrender Life`,
     author: {
       name: `Caleb Howard`,
-      /n summary: `The greatest lives are those surrendered in love to something worthy of the sacrifice.`,
+      \n summary: `The greatest lives are those surrendered in love to something worthy of the sacrifice.`,
     },
     description: `A blog by Caleb Howard`,
     siteUrl: `https://surrenderlife.com/`,
