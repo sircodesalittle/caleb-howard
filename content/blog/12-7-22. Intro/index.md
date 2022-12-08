@@ -9,6 +9,7 @@ The point of this blog is to demonstrate that the most satisfying life is one su
 What are you living for: family, love, freedom, justice, pursuit of happiness, responsibility for our world?  Are these overrated, nothing more than selfish instincts, or do they transcend culture?  Are these ideals beautiful, do they give our lives meaning?  When we look up at the stars and experience the awe of grandeur, we feel small and at the same time a desire to become a part of the greatness before us.  Is it a useless dream, to encounter this side of ourselves, to experience a calling for purpose.  Perhaps there is nothing to live for that is greater than ourselves?  The life of the cynic: withdrawn, reducing all around him to nothing, black and white sterility.  Stop that, enjoy life, surrender your proud enlightenment.  We cannot throw away our hope, we must experience the wonder-filled world.  We must dream more, not less.  Believe in things that overwhelm your passions, and love will lead you to something greater.  Be caught up in the storm.
 
 
+
 ![Storm](./photo.png)
 
 
