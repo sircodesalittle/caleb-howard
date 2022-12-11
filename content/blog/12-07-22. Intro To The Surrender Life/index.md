@@ -1,13 +1,16 @@
 ---
-title: Intro To The Surrender Life
+title: Introduction to Surrender Life
 date: "2022-12-07"
-description: "What are you living for?  Is there anything worth “living” for?"
+description: "What are you living for, is there anything worth “living” for?"
 ---
 
-The point of this blog is to demonstrate that the most satisfying life is one surrendered in love to something worthy of the sacrifice.  As we consider the purpose of belief and love, a pattern of self-denial emerges in each and surrender is rewarded.  The irony is that we can be rewarded with joy while we experience an ongoing denial of self.  Is it possible to be selfishly selfless?  This surrendering of life defines love; and all that remains is to find that which is worthy of our indulgent life of sacrifice.
+The point of this blog is to demonstrate that the most satisfying life is one surrendered in love to something worthy of the sacrifice.  Isn’t that what we are all looking for, the best use for our time, the most worthy purpose for our lives?  You wake up every morning to the dreary grind, looking for a good job that makes the most money, provides for the family, and fulfills some personal dream.  What is your dream, do you still dream?  Give your life to something.
 
-What are you living for: family, love, freedom, justice, pursuit of happiness, responsibility for our world?  Are these overrated, nothing more than selfish instincts, or do they transcend culture?  Are these ideals beautiful, do they give our lives meaning?  When we look up at the stars and experience the awe of grandeur, we feel small and at the same time a desire to become a part of the greatness before us.  Is it a useless dream, to encounter this side of ourselves, to experience a calling for purpose.  Perhaps there is nothing to live for that is greater than ourselves?  The life of the cynic: withdrawn, reducing all around him to nothing, black and white sterility.  Stop that, enjoy life, surrender your proud enlightenment.  We cannot throw away our hope, we must experience the wonder-filled world.  We must dream more, not less.  Believe in things that overwhelm your passions, and love will lead you to something greater.  Be caught up in the storm.
+Consider the human use for faith and love.  A pattern of self-denial emerges and surrender to each is rewarded.  The irony is that we are rewarded with joy while we experience an ongoing denial of self.   For example, if you dedicate your life to a sport, your time is consumed by practice and a constant drive to be better.  Why are we so pleased when all of our attention and excitement is focused on a single goal?  This is living for the focus.  When we give ourselves to something important, we are self-less-ly self-ish.  This surrendering of life is the definition of love.  All that remains is to find that which is worthy of our time.
 
+What are you living for: competition, family, love, freedom, justice, pursuit of happiness, responsibility for our world?  Are these nothing more than selfish instincts or distractions?  Perhaps some of them transcend culture.  Which of these goals are beautiful and give our lives a greater meaning?  All of us live for distraction to some degree, but we all hope that in the end we have found something better.
+
+When we look up at the stars and experience the awe of grandeur, we feel small and at the same time a deep desire to become a part of that greatness.  Is this a useless dream, to encounter this side of ourselves, to experience a calling?  Is there nothing to live for that is greater than ourselves?  We must dream more, not less.  The life of the cynic is withdrawn, reducing all around him to nothing, black and white sterility.  Stop that, enjoy life, give up on your proud enlightenment.  We cannot throw away our hope, we must live in a wonder-filled world.  Believe in things that overwhelm your passions, and love will lead you to something greater.  Be caught up in the storm.
 
 
 ![Storm](./photo.png)
