@@ -11,8 +11,10 @@ module.exports = {
   siteMetadata: {
     title: `Surrender Life`,
     author: {
-      name: `Caleb Howard. `,
-      summary: `Interested undergraduate with a love for truth.`,
+      name: `Caleb Howard`,
+      {
+      \n summary: `Interested undergraduate with a love for truth.`,
+    },
     },
     description: `A blog by Caleb Howard`,
     siteUrl: `https://surrenderlife.com/`,
