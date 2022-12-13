@@ -1,7 +1,7 @@
 ---
 title: Surrender in Faith?
-date: “2022-12-13”
-description: “The price of faith comes straight out of your own pride.  You must put down a measure of certainty and reason, make an assumption about this world.”
+date: 2022-12-13
+description: The price of faith comes straight out of your own pride.  You must put down a measure of certainty and reason, make an assumption about this world.
 ---
 
 If you already have faith, don’t be offended by this.  Have the perspective of empty hands, your faith is a gift.  If you have no faith, be challenged to open your hands, release your fists and let go of your pride.
