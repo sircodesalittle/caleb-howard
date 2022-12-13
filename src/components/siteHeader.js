@@ -5,8 +5,7 @@ const SiteHeader = () => {
     <div className="bio">
       <p>
         <i>
-          Hey fill this in when you get a chance, Caleb. This is the area where
-          you can put info about your site that shows up only on this page.
+          The greatest lives are those surrendered in love to something worthy of the sacrifice.
         </i>
       </p>
     </div>
