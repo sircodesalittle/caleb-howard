@@ -1,7 +1,7 @@
 ---
-title: Introduction to Surrender Life
-date: "2022-12-07"
-description: "What are you living for, is there anything worth “living” for?"
+title: Part 1, Introduction to Surrender Life
+date: 2022-12-07
+description: What are you living for, is there anything worth “living” for?
 ---
 
 The point of this blog is to demonstrate that the most satisfying life is one surrendered in love to something worthy of the sacrifice.  Isn’t that what we are all looking for, the best use for our time, a reason for living?  You wake up every morning to the dreary grind, looking for a good job that makes the most money, one that provides for the family, and fulfills some personal vision.  What is your dream, do you still dream?  Give your life to something.

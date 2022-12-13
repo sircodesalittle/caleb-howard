@@ -1,5 +1,5 @@
 ---
-title: Surrender in Faith?
+title: Part 2, Surrender in Faith
 date: 2022-12-13
 description: The price of faith comes straight out of your own pride.  You must put down a measure of certainty and reason, make an assumption about this world.
 ---
