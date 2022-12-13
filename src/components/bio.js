@@ -49,7 +49,6 @@ const Bio = () => {
         )}
           <br>
           </br>
-        <\n>
         <p>
           {author?.summary || null}
         </p> 
