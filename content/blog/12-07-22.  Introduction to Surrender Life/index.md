@@ -1,5 +1,5 @@
 ---
-title: Part 1, Introduction to Surrender Life
+title: Part 1: Introduction to Surrender Life
 date: 2022-12-07
 description: What are you living for, is there anything worth “living” for?
 ---
