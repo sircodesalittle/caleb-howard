@@ -4,6 +4,7 @@ date: 2022-12-31
 description: The only faith that can give meaning to our lives is one that exists outside of us, an existence that defines ours.
 —--
 
+
 The problem with any belief is that there is always a logical way to disassemble the pieces.  If faith is like building a tower of assumptions, then the process of tearing it down is skeptical reductionism.  Instead of the embellished beauty of life, you are left with a tasteless existence.  Why would anyone maintain a faith that does nothing to enrich their lives?  Which beliefs do you ascribe to: humans are basically good, nature is all that there is, a religion of some variety, right and wrong are subjective?  Are you able to defend the assumptions that inform your life?   
 
 Beauty itself has an element of faith.  It is difficult to say why something is beautiful, all you have is an emotional response that triggers the belief, “there is beauty.”  You can be sure that it is in the eye of the beholder, but I believe our experience truly reaches for an objective beauty that exists outside of our minds.  
