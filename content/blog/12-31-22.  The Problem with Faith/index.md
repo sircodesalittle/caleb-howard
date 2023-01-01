@@ -1,7 +1,7 @@
 ---
-title: Part 3 The Problem with Faith
+title: Introduction Part 3
 date: 2022-12-31
-description: The only faith that can give meaning to our lives is one that exists outside of us, an existence that defines ours.
+description: The Problem With Faith.  The only faith that can give meaning to our lives is one that exists outside of us, an existence that defines ours.
 ---
 
 The problem with any belief is that there is always a logical way to disassemble the pieces.  If faith is like building a tower of assumptions, then the process of tearing it down is skeptical reductionism.  Instead of the embellished beauty of life, you are left with a tasteless existence.  Why would anyone maintain a faith that does nothing to enrich their lives?  Which beliefs do you ascribe to: humans are basically good, nature is all that there is, a religion of some variety, right and wrong are subjective?  Are you able to defend the assumptions that inform your life?   

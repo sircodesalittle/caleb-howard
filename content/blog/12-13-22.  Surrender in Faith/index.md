@@ -1,7 +1,7 @@
 ---
-title: Part 2 Surrender in Faith
+title: Introduction Part 2
 date: 2022-12-13
-description: The price of faith comes straight out of your own pride.  You must put down a measure of certainty and reason in order to make an assumption about this world.
+description: Surrender in Faith. The price of faith comes straight out of your own pride.  You must put down a measure of certainty and reason in order to make an assumption about this world.
 ---
 
 If you already claim a faith, don’t be offended by this.  Instead, have the perspective of empty hands, faith is a gift.  If you despise the word “faith,” bear with me for a moment.  Regardless of your personal opinion, your worldview began as an assumption.  We have all surrendered a measure of certainty in order to claim what we believe is true.
