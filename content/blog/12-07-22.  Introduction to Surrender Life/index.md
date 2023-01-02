@@ -14,7 +14,7 @@ Look up at the stars and experience the awe of grandeur, you feel small and at t
 
 
 
-![](./)
+![Surrender Life](./photo.png)
 
 
 
