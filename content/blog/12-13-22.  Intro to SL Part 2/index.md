@@ -1,8 +1,7 @@
 ---
 title: Intro to SL Part 2
 date: 2022-12-13
-description: Surrender In Faith. 
-The price of faith comes straight out of your own pride.  You must put down a measure of certainty and reason in order to make an assumption about this world.
+description: Surrender In Faith.  The price of faith comes straight out of your own pride.  You must put down a measure of certainty and reason in order to make an assumption about this world.
 ---
 
 The truth is that all worldviews begin as an assumption.  We have all surrendered a measure of certainty in order to believe a claim for truth.  If you already have faith, don’t be offended by this.  Instead, have the perspective of empty hands, faith is a gift.  If you despise the word “faith,” bear with me for a moment.  

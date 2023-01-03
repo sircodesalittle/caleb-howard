@@ -1,8 +1,7 @@
 ---
 title: Introduction to Surrender Life Part 1
 date: 2022-12-07
-description: A Pattern of Self-Denial.  
-What are you living for, is there anything worth living for?
+description: A Pattern of Self-Denial.  What are you living for, is there anything worth living for?
 ---
 
 The point of this blog is to demonstrate that the most satisfying life is one surrendered in love to something worthy of the sacrifice.  Isn’t that what we are all looking for, the best use for our time, a reason for living?  You wake up every day to the dreary grind, looking for a good job that makes the most money, one that provides for the family, and fulfills some personal vision.  What are your dreams for life, do you still have any?  Dream of one that is worthy.
