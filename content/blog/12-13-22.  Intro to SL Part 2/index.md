@@ -10,13 +10,14 @@ The word “believe” is defined in the dictionary as: to accept (something) as
 
 This human act of belief does not only apply to faith in religion but also to faith in our common practices.  The ideal of social freedom has become greater than our practical desires, it is now a foundation for our government.  Society has taken this human need and we have placed it in the sacred position above life.  Is this a foolish assumption?
 
-Business is often ruthless, and some people are unashamedly greedy.  Their actions speak for their beliefs.  The only thing that matters is filling their pockets and taking what they can for themselves.  It is more of an anti-faith to make this negative assumption, and the only thing left for them is the endless drive for satisfaction.  There is clearly a right and wrong answer in life.   Addiction is bad, drugs will destroy you, power and greed corrupt, wisdom is real.
+Business is often ruthless, and some people are unashamedly greedy.  Their actions speak for their beliefs.  The only thing that matters is filling their pockets, chasing the endless drive of satisfaction.  This is more of an anti-faith because they make the negative assumption that there is nothing else worth living for.  There are clearly right and wrong answers in life: addiction is bad, drugs will destroy you, power and greed corrupt, selfishness is akin to loneliness.  Wisdom is real.
 
 Another example is love in marriage.  It is more than attraction, love is a commitment that many intend for life.  In order to marry and stay married, this love must transcend our circumstances.  It is a commitment that we believe will make us happy, and one that rewards us with purpose.  This faith lifts up the value of love, making it more important than our everyday happiness.  When we surrender ourselves to this belief, we are rewarded with a greater satisfaction in marriage.
 
-We all make assumptions for life, and when we embrace these beliefs we also lift them up, high above ourselves.  It is the act of surrender, to yield, to give up, to submit.  We cannot help but commit our lives to our greatest hopes, to live according to the claims we make for truth.  They inevitably define your life.  Freedom, family, love, wealth, or self are no longer just practical, they are extremely valuable.  When we choose wisely and place our hope in good beliefs, our lives become rich with meaning.  Faith is its own reward, peace is the reward, freedom is the reward, love is the reward.
+We all make assumptions for life, and when we embrace a belief we also lift up above ourselves.  It is the act of surrender, to yield, to give up, to submit.  We cannot help but commit our lives to our greatest hopes, to live according to the claims we make for truth.  They inevitably define your life.  Freedom, family, love, wealth, or self are not just practical, they are extremely valuable.  When we choose wisely and place our hope in good beliefs, our lives become rich with meaning.  Faith is its own reward, peace is the reward, freedom is the reward, love is the reward.
 
 A faith in these good things is beautiful, and our greatest love is to die for.  I believe this beauty and love is the strongest evidence for any “truth.”  Something so wonderful must be true, it must be worthy of my life.
+
 
 [](./)
 
