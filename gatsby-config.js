@@ -12,7 +12,7 @@ module.exports = {
     title: `Surrender Life`,
     author: {
       name: `Caleb Howard`,
-      summary: `Credentials: interested, with a passion for truth and curiosity of love.`,
+      summary: `Credentials: interested, with a passion for truth and a curiosity of love.`,
     },
     description: `A blog by Caleb Howard`,
     siteUrl: `https://surrenderlife.com/`,

@@ -12,6 +12,7 @@ What are you living for: competition, family, love, freedom, justice, pursuit of
 
 Look up at the stars and experience the awe of grandeur, you feel small and at the same time a deep desire to become a part of that greatness.  Is this a useless dream, to encounter this side of ourselves?  Is there nothing to live for that is greater than life?  We must dream more and not less, find the calling.  The life of the cynic is withdrawn, reducing all around him to nothing, black and white sterility.  Stop that, enjoy life, let go of your proud enlightenment.  We cannot throw away our hope, we must live in a wonder-filled world.  Believe in things that overwhelm your passions, and love will lead you to greater things.  Be caught up in the storm.
 
+
 ![](./)
 
 
