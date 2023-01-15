@@ -1,7 +1,7 @@
 --- 
 title: Introduction Part 4, Name the Machine
 date: 2023-01-14
-description: If objective virtue exists, it isn’t namelessly flowing through nature.  Our faith in metaphysical truth is worthless without an origin of virtue, and the dance of submission between beauty and beauty.
+description: If an objective virtue exists, it is much more than a nameless force flowing through nature.  There must be a metaphysical source, one that is perfectly in love, caught in the dance of submission.
 ---
 
 If love exists outside of our minds, then there must be an object or origin of this love.  Where does the light come from?  We can see the sun in the sky but can hardly imagine its size or distance from the earth.  In the same way that a candle can light up a dark room, our natural minds have this picture of love.  There is a greater light that we cannot comprehend.  This source can define our morality, our existence, and be the object of our joy.  
