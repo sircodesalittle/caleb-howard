@@ -1,5 +1,5 @@
 ---
-title: Intro Part 3, The Virtue of Brains
+title: Intro Part 3, The Virtue of Minds
 date: 2022-12-31
 description: The only faith that can give true meaning is one that exists outside of our minds.
 ---
