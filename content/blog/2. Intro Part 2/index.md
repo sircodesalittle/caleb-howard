@@ -8,13 +8,14 @@ Every worldview begins as an assumption.  We have all surrendered a measure of c
 
 This human act of belief does not only apply to faith in religion but also to our common values.  The ideal of freedom has become greater than our practical desires, society has taken this human need and we have placed it in the sacred position above life.  Is this a foolish assumption, an ignorant hope?
 
-Business is often ruthless, and some are unashamedly greedy.  Their actions speak for their beliefs.  This is more of an anti-faith because they make the negative assumption that there is nothing else worth living for.
+Faith in achievement is also an assumption for life.  Business is often ruthless, and some are unashamedly greedy.  Their actions speak for their beliefs.  Perhaps they mistakenly treasure their ability to take more than they value the pleasure it is to provide for others.  If you make a negative assumption that there is nothing better to live for than yourself, then this becomes more of an anti-faith worldview.  
 
-Another example of faith is love in marriage.  This love is a commitment, and in order to stay married it must transcend our circumstances.  We must lift up the value of love, making it more important than ourselves.  When we surrender to this belief, we are rewarded with a greater satisfaction in marriage.
+Another example of faith is love in marriage.  This “love” is a commitment, and in order to stay married it must transcend our circumstances.  We must lift up the value of love, making it more important than ourselves.  If we surrender to this belief, we are rewarded with a greater satisfaction in marriage.  The assumption and commitment of love defines and empowers the relationship.
 
-We all make assumptions for life, and when we embrace a belief we will inevitably surrender, yield, submit to it.  We cannot help but commit our lives to our greatest hopes, to live according to the claims we make for truth.  They define our lives as we follow them.  Freedom, family, love, wealth, or self are not just lifestyle choices, they are essential.  When we choose wisely and place our hope in good beliefs, our lives become rich with meaning.  Faith is its own reward, freedom is the reward, love is the reward.  
+We all make assumptions for life, and when we embrace a belief we will inevitably surrender, yield, submit to it.  We cannot help but commit our lives to our greatest hopes, to live according to the claims we make for truth.  They define our lives as we follow them.  Freedom, love, wealth, or family, these are the monumental beliefs that shape us.  If we choose wisely and place our hope in good assumptions, our lives become rich with meaning.  Faith is its own reward, freedom is the reward, love is the reward.  
 
-A faith in these is treasure, and our greatest love is to die for.  Beauty and love are the strongest evidence for “truth,” something so wonderful must be true, it must be worthy of my life.
+A faith in these is life changing, and our greatest love is to die for.  The joy we feel for these treasures is our strongest evidence for any “truth,” something so wonderful must be true, it must be worthy of my life.
+
 
 
 
