@@ -4,6 +4,7 @@ date: 2023-01-14
 description: If an objective virtue exists, it is much more than a nameless force flowing through nature.  There must be a metaphysical source, one that is perfectly in love, caught up in the dance of submission.
 ---
 
+
 Virtue that exists outside of our minds, must have an object or origin of this love.  Where does the light come from?  We can see the sun in the sky but can hardly imagine its size or distance from the earth.  In the same way that a candle can light up a dark room, our natural minds have this picture of love.  There is a greater light that we cannot comprehend.  This source can define our morality, our existence, and be the object of our joy.  
 
 You might claim that the origin of morality is the “universe,” just a nameless truth that holds everything together in a random synchronicity.  If this is the case, have we really found a reason for this spinning planet, cosmic dust?  No, the origin of love must have its own reason for existence, and in turn it possesses all life with meaning.   

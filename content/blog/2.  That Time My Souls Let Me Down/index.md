@@ -4,6 +4,7 @@ date: 2022-12-10
 description: One of many embarrassing stories where my stubborn determination to prove myself leads to stupidity.  “I want to do what I want to do, there are no limits.”
 ---
 
+
 Surrender, what a word.  It reminds me of several stories in my youth when I believed that quitting was not an option.  That God would absolutely bless my determination to achieve whatever I set my mind to do.  The mantra “quitters never win, winners never quit” quickly took hold of my life, and it continued all through college until my senior year identity crisis finally flipped the switch.  A better mantra may have been: “If at first you don’t succeed, try really hard at something else.”  There are some of you who have already begun to judge.  Maybe you believe in some psychology of winning.  Let me give you an example where, under the right circumstances, the skin of your feet will peel itself straight back.
 
 One day, more than a decade ago, on a hot summer Sunday in Missouri, I attended a rally of sorts with my fellow salesman.  Our Sunday sermon was not of Jesus, but rather for the purpose of making money on some other “good” books.  Educational reference books, much better than encyclopedias, are sold by young college students every summer across America.  And I was among the lucky few, except on this particular morning, not so lucky.
